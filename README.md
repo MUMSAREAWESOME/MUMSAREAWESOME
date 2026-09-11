@@ -5,8 +5,6 @@
 
 Yes I make things, weird things
 
-Support me by working on my weird little game
-
 Hope you are ok
 
 MWAH~
